@@ -1,12 +1,8 @@
 ChatGPT账号注册购买，ChatGPT免费共享账号，ChatGPT批发中文入口
 
-## ChatGPT在线购买地址一：
+## ChatGPT在线购买地址：
 
 https://vipchatgpt.github.io/
-
-## ChatGPT在线购买地址二：
-
-https://chatgpt.github.io/
 
 收藏回家不迷路！↑↑↑理论上地址永久有效！！！
 
